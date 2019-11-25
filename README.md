@@ -26,7 +26,11 @@ believing you're saved from the sins
 you can't comprehend I think not
 in your mind destined to break
 
+brace and rise all saints brace and rise again for tha lies
+inside making haste through the gardens of faith
 
+brace and rise all saints brace and rise again for tha lies
+inside making haste through the gardens of faith
 
 ```
 

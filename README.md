@@ -23,8 +23,8 @@ inside making haste through the gardens of faith
 
 crushing the spirits of dead (in limbo)
 believing you're saved from the sins
-you can't comprehend 
-in mind destined 
+you can't comprehend I think not
+in your mind destined to break
 
 
 

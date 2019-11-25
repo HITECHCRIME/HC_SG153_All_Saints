@@ -6,8 +6,7 @@
 
 ## Project Data
 
-Description.
-
+[FREE] JGRXXN X GHOSTEMANE TYPE BEAT - LOOP (prod. Griesgrammar) 
 
 **Title:**  / **Featuring:** 
 
@@ -16,6 +15,17 @@ Description.
 ## Lyrics
 
 ```
+brace and rise all saints brace and rise again for tha lies
+inside making haste through the gardens of faith
+
+brace and rise all saints brace and rise again for tha lies
+inside making haste through the gardens of faith
+
+crushing the spirits of dead (in limbo)
+believing you're saved from the sins
+you can't comprehend 
+in mind destined 
+
 
 
 ```

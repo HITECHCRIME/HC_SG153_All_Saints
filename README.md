@@ -15,6 +15,9 @@
 ## Lyrics
 
 ```
+in nomine patris (et filli)
+spiritus sancti
+
 brace and rise all saints brace and rise again for tha lies
 inside making haste through the gardens of faith
 
@@ -31,6 +34,8 @@ inside making haste through the gardens of faith
 
 brace and rise all saints brace and rise again for tha lies
 inside making haste through the gardens of faith
+
+in nomine Patris et Filii et Spiritus Sancti
 
 ```
 

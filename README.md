@@ -55,4 +55,13 @@ in nomine Patris et Filii et Spiritus Sancti
 
 ## Notes
 
+MOTHNODE_ All Saints [prod. Griesgrammar]
+
+/// Zero effects or modifications song. Straight from the phone mic :p Ironically this song killed my laptop immediately after it was done recording. Might have been the gods that got angry and struck the motherboard.
+. /// MICROLABEL_ @hitechcrime /// USER_ @mothnode
+/// BEAT_ @griesgrammar /// TARGET_ HC_SG153_All_Saints /// STATUS_ Full Song Raw Recording Prototype
+.
+/// LISTEN TO REGULAR SONG DEV /// MORE ACCESS @mothnode .
+/// NODE STEMS #hitechcrime #humanedge #lilpump #brutal #vocal #bass #producer #systech #creator #mixercreative #microlabel #fullsong #songpractice #trapmusic #trapmetal #trapcore #aggrotrap #recordedonmobile #mobilemusic #mobilemusician #darktrap #trapmusic #madeoniphone
+
 ## Music Video
